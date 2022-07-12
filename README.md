@@ -9,7 +9,7 @@
 - 🤔 I’m looking for help with new features in SIGA
 - 💬 Ask me about ...
 - 📫 How to reach me: send me an email: rink_190@hotmail.com
-- ⚡ Fun fact: _)_
+- ⚡ Fun fact: ZZZzzzz...
 
 <img src="https://raw.githubusercontent.com/MicaelliMedeiros/micaellimedeiros/master/image/computer-illustration.png" min-width="400px" max-width="400px" width="400px" align="right" alt="Computador Ricardo Antero">
 
